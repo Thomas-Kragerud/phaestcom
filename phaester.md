@@ -16,16 +16,23 @@ Aksel Gundersen
 
 ## 2017 100
 Mathias 
+
 Markus 
+
 Lars Medsaus
+
 Amanda
 
 
 ## 2018 101
 Emil 
+
 Fred
+
 Marte 
+
 Nina
+
 Hakon
 
 ### 2019 102
